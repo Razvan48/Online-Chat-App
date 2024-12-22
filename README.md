@@ -3,7 +3,7 @@
 
 <br/>
 
-**Details:**<br/>
+**Details:** <br/>
 
 <br/>
 
